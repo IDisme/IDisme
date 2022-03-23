@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @IDisme
+- 👀 I’m interested in Somthings 
+- 🌱 I’m currently learning STUFF
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me Go in your walls
